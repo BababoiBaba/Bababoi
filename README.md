@@ -1,2 +1,2 @@
 # Bababoi
-[LINK](https://bababoibaba.github.io)
+[LINK](https://bababoibaba.github.io/Bababoi/)
